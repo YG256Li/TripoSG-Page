@@ -1,1 +1,0 @@
-# TripoSG-Page
